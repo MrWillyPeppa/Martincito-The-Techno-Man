@@ -1,4 +1,4 @@
-# ¡Hola! Soy Martincito❣️
+# ¡Hola! Soy Martincito
 
 🎓 Estudiante de Ingenieria en Computacion en Universidad.
 
